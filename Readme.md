@@ -1,4 +1,4 @@
 Sergey Skvorcov
 Very good manager and programmer
 Really!
-C:\Users\S.Skvortsov\Desktop\Фотки\106APPLE
+![image](https://user-images.githubusercontent.com/122547070/212472713-b5582745-0ad0-408d-83c2-f27eecf8b325.png)
